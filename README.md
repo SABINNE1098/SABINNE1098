@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SABINNE1098
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning coding
+- 📫 How to reach me, you have to use discord
