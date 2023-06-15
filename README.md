@@ -2,3 +2,6 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning coding
 - 📫 How to reach me, you have to use discord
+- 🧨 I'm also a minecraft commander
+- 👾 I play games like: ravenfield, stormworks, people playground, universe sandbox², rimworld, and more
+- 🔔 Feel free to ping or dm me in discord 
