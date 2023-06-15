@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @SABINNE1098
+- 👋 Hi, I’m SABINNE
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning coding
+- 🌱 I'm learning coding
 - 📫 How to reach me, you have to use discord
 - 🧨 I'm also a minecraft commander
 - 👾 I play games like: ravenfield, stormworks, people playground, universe sandbox², rimworld, and more
